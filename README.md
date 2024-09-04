@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lapin-Yippe
+- 👋 Hi, I’m 
 - 👀 I’m interested in you
 - 🌱 I’m currently learning you
 - 💞️ I’m looking to collaborate with you
